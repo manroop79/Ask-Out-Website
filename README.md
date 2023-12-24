@@ -1,3 +1,3 @@
 ✨[doyouwannagooutwithme.com](http://doyouwannagooutwithme.com) 
 
-A website to invite your lover for a date 🥰
+A fun website to use in certain situations.
